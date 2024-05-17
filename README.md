@@ -10,4 +10,4 @@ meu nome é Gabriel Barboza Ozorio
 
 00001084506014@al.educacao.sp.gov.br
 
-![](https://media1.tenor.com/m/S3HR_7TKYSYAAAAd/game-of-thrones-dragon.gif)
+![](https://itunes.apple.com/app/apple-store/id917932200?pt=39040802&ct=Media1GIFV2&mt=8)
